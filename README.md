@@ -1,2 +1,2 @@
 # thank-you
-chendhuran college
+CHENDHURAN COLLEGE
